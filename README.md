@@ -2,7 +2,7 @@
 - 👀 I’m interested in Music and beats and team to work with
 - 🌱 I’m currently learning FL Studio
 - 💞️ I’m looking to collaborate on Singing and rapping with someone
-- 📫 How to reach me ...
+- 📫 How to reach me in instagram Alpphainx
 
 <!---
 Alpphainx/Alpphainx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
